@@ -1,16 +1,13 @@
-## Hi there 👋
+<img width=100% src="https://capsule-render.vercel.app/api?type=waving&height=130&color=822323FF&fontAlign=99">
 
-<!--
-**leticiafeemnds/leticiafeemnds** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<div>
+<div>
 
-Here are some ideas to get you started:
+## ───୨ৎ───୨ৎ───୨ৎ───
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=1000&color=822323&repeat=false&width=435&lines=Estudante+do+1%C2%B0+ano+de+inform%C3%A1tica!)](https://git.io/typing-svg)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+ִֶָ𓂃 ࣪˖ ִֶָ🐇་༘࿐ amo mdzs
+
+˚⊱🤍⊰˚ iniciante
+
+‧₊˚♪ 𝄞₊˚⊹ 
