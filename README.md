@@ -2,10 +2,10 @@
 
  # ──୨ৎ───୨ৎ───୨ৎ───୨ৎ───୨ৎ───୨ৎ───୨ৎ───୨ৎ───୨ৎ──
  
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&pause=1000&color=822323&repeat=false&width=435&lines=Estudante+do+1%C2%B0+ano+de+inform%C3%A1tica!)](https://git.io/typing-svg)
+ [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=&pause=1000&color=822323&width=435&lines=Sejam+bem+vindos(as)!)](https://git.io/typing-svg)
 
-ִֶָ𓂃 ࣪˖ ִֶָ🐇་༘࿐ amo mdzs
+ִֶָ𓂃 ࣪˖ ִֶָ🐇་༘࿐  oi, meu nome é letícia, tenho 15 anos e estou atualmente no primeiro ano de informática no IFRN
 
-˚⊱🤍⊰˚ iniciante
+˚⊱🤍⊰˚ amo mdzs e musica
 
-‧₊˚♪ 𝄞₊˚⊹ 
+‧₊˚♪ 𝄞₊˚⊹  iniciante
