@@ -10,5 +10,4 @@
 
 ‧₊˚♪ 𝄞₊˚⊹  "iniciante"
 
-<img width=100% src"https://www.pinterest.com/pin/587860557600329356/"/>
-![b29a8deb19a3dca110dccc8d777702c1](https://github.com/user-attachments/assets/2caf6a9d-f758-40ac-aefa-fa43dcfb9edc)
+<img src="https://github.com/user-attachments/assets/2caf6a9d-f758-40ac-aefa-fa43dcfb9edc" width="300">
