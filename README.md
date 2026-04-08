@@ -10,4 +10,4 @@
 
 ‧₊˚♪ 𝄞₊˚⊹  "iniciante"
 
-<img src="https://github.com/user-attachments/assets/2caf6a9d-f758-40ac-aefa-fa43dcfb9edc" width="170">
+<img src="https://github.com/user-attachments/assets/2caf6a9d-f758-40ac-aefa-fa43dcfb9edc" width="170" left="700" top="500">
