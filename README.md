@@ -9,3 +9,5 @@
 ˚⊱🤍⊰˚ amo mdzs e musica
 
 ‧₊˚♪ 𝄞₊˚⊹  "iniciante"
+
+<img src"https://www.pinterest.com/pin/587860557600329356/"/>
